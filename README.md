@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on development related challanges.
 - 📫 Reach me via mail jayakumar1234yt@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Nothing will work unless you.
+- ⚡ Fun fact: Nothing will work unless you do.
 
 <!---
 Jayakumar916/Jayakumar916 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
